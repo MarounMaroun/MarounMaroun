@@ -1,5 +1,5 @@
 [![Linkedin Badge](https://img.shields.io/badge/-Maroun_Maroun-blue?style=flat-square&logo=Linkedin&logoColor=white&link=https://www.linkedin.com/in/marounb//)](https://www.linkedin.com/in/marounb/)
-[Medium](https://medium.com/@maroun.bassam)
+[Medium](https://maroun-bassam.medium.com/)
 
 Nice to meet you! 🍻
 
